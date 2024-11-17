@@ -16,19 +16,11 @@ As the motorcade pulled into the church lot, murmurs rippled through the gathere
 
 Angela turned to see a small group exchanging bewildered looks. The limo’s door opened, and former President Donald J. Trump stepped out, flanked by Secret Service agents. Gasps swept through the crowd.
 
----
-
-## The Arrival
-
 The shock of Trump’s appearance unsettled the mourners. Though Rev. Stone’s influence was far-reaching, he had never mentioned any connection to Trump in sermons, conversations, or community events.
 
 Angela adjusted her black dress, trying to suppress her unease. It wasn’t inconceivable that Stone’s legacy could have reached high places, but Trump’s presence felt intrusive. The sacred space meant for mourning seemed overshadowed by his celebrity.
 
 The tension followed Angela as she joined the others filing into the sanctuary.
-
----
-
-## The Sanctuary
 
 Inside, the sanctuary felt foreign. The warmth and sense of community Angela remembered were gone, replaced by a chilling coldness. She shivered as she took in the stark atmosphere—the once welcoming space now felt hostile and foreboding. Overcome with unease, Angela silently prayed for her church, asking God to restore its spirit.
 
@@ -39,10 +31,6 @@ The eulogy was impersonal, devoid of any anecdotes about Rev. Stone’s life or 
 The officiant’s abruptness created an uneasy silence. “The service is concluded. Everyone must exit through the side doors,” he said without emotion.
 
 Angela exchanged confused looks with others, but no one dared speak. They silently filed out, the air thick with dread.
-
----
-
-## The Trap
 
 Angela pushed through the side doors with the other mourners, but before she could process her surroundings, a strong hand seized her arm.
 
@@ -55,10 +43,6 @@ The gym had been entirely renovated since the massacre on Mother’s Day. The on
 A cold realization gripped her: this was no longer a gym. It was a chamber of death.
 
 The gym doors slammed shut.
-
----
-
-## The Execution
 
 Trump entered through the double doors in the back of the gym, flanked by Secret Service agents. Trump and Annie “Hurricane Annie” Jacobsen climbed the stairs to the announcer's booth together. Jacobsen, who had meticulously managed and directed the surprise assault on Hickory Valley Christian Church on Mother’s Day—killing everyone inside—carried an aura of cold efficiency. Together, they stood as silent overseers of the unfolding carnage.
 
@@ -77,8 +61,6 @@ His relentless badgering broke the resolve of a few agents, who reluctantly step
 Meanwhile, the executions continued with unrelenting brutality. Chainsaws severed heads, blood spraying across the polished floor.
 
 Angela clung to the wall, trembling, until her turn came. She was dragged forward, her eyes locking onto Trump’s unfeeling gaze.
-
----
 
 Angela clung to the wall, trembling, until her turn came. She was dragged forward, her eyes locking onto Trump’s unfeeling gaze before she was forced to stand before the executioner.
 
@@ -99,10 +81,6 @@ Finally, as her awareness faded, Angela felt an overwhelming sense of cold empti
 Angela's pain finally ceased when she slipped into unconsciousness. She had to endure intense pain without being able to move, apply pressure to it, or scream for over four minutes. She also spent the time since her head was severed struggling to breathe.
 
 The executions continued for hours. Chainsaws buzzed relentlessly, their roar punctuated by the muffled cries of mourners. The final chainsaw powered off around midnight, leaving a suffocating silence in its wake.
-
----
-
-## The Cover-Up
 
 By the next day, the gymnasium was spotless. The inmates, following orders, had dissolved the bodies, ground the bones, and scattered the remains outdoors, ensuring no trace was left.
 
