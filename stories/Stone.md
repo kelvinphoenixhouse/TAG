@@ -32,7 +32,9 @@ The tension followed Angela as she joined the others filing into the sanctuary.
 
 ## The Sanctuary  
 
-Inside, the sanctuary felt foreign. The warmth and sense of community Angela remembered were gone, replaced by a chilling coldness. The man at the pulpit was unfamiliar—a stranger to Hickory Valley Christian Church and the Tennessee Valley. Angela assumed he had been installed at the church sometime after she had stopped attending regularly. His demeanor was detached, his voice flat as he read from a prepared script.
+Inside, the sanctuary felt foreign. The warmth and sense of community Angela remembered were gone, replaced by a chilling coldness. She shivered as she took in the stark atmosphere—the once welcoming space now felt hostile and foreboding. Overcome with unease, Angela silently prayed for her church, asking God to restore its spirit and to protect the mourners from whatever darkness had taken hold.
+
+The man at the pulpit was unfamiliar—a stranger to Hickory Valley Christian Church and the Tennessee Valley. Angela assumed he had been installed at the church sometime after she had stopped attending regularly. His demeanor was detached, his voice flat as he read from a prepared script.
 
 The eulogy was impersonal, devoid of any anecdotes about Rev. Stone’s life or ministry. There was no mention of his decades of service or the countless souls he had guided. Worse, there was no prayer—no invocation of God’s comfort, no words of salvation.
 
@@ -62,15 +64,29 @@ The gym doors slammed shut.
 
 ## The Execution  
 
-Trump entered through the double doors in the back of the gym, flanked by Secret Service agents. He ascended the bleachers slowly, pausing to meet the eyes of various mourners. Many called his name, pleading for freedom. Trump responded only with a dismissive glance.
+Trump entered through the double doors in the back of the gym, flanked by Secret Service agents. He and Annie “Hurricane Annie” Jacobsen ascended to the soundproof booth together. Jacobsen, who meticulously oversaw the surprise assaults on congregations during their respective worship services—killing everyone inside—carried an aura of cold efficiency. Together, they stood as silent overseers of the unfolding carnage.
 
-Reaching the soundproof booth, Trump joined Annie “Hurricane Annie” Jacobsen, infamous for her TAG operations. The pair stood watching as the mourners were forced into a line. Chainsaws roared to life.
+The mourners were forced into a line as chainsaws roared to life.
 
-Some mourners screamed for answers; others simply wept. None came. The executions began with unrelenting brutality—chainsaws severing heads, blood spraying across the polished floor.
+Trump sat comfortably in the booth, his gaze unwavering as mourner after mourner met their horrific end. He watched nearly every execution, his expression devoid of pity or remorse. Occasionally, he stepped away to eat a catered meal or use the restroom, but even these breaks carried an air of self-indulgence. 
+
+Alone in the bathroom, Trump stood before the mirror, adjusting his tie and running a hand through his hair. “You’re amazing,” he whispered to his reflection. “No one else could do what you’re doing. You’re the greatest, the best president ever. Maybe even the best person ever.”
+
+He chuckled softly before leaving the bathroom and returning to his seat, as if nothing had happened.
+
+Back in the gym, Trump began addressing the Secret Service agents, urging them to participate as executioners. “You’ve got to get your hands dirty sometimes,” he said with a grin. “Come on, don’t be weak. Show me you’ve got what it takes.”
+
+Some agents, hesitant and visibly uncomfortable, refused. Trump’s tone shifted, adopting a mix of mockery and peer pressure. “What’s the matter? Afraid of a little blood? You’re supposed to protect your country, not act like cowards. If I can do this, so can you.”
+
+His relentless badgering broke the resolve of a few agents, who reluctantly stepped forward to take up chainsaws. For those who still refused, Trump mocked them openly, smirking as he called them “soft” or “unfit for the job.” The atmosphere grew more oppressive, the agents’ participation adding another layer of terror to the night.
+
+Meanwhile, the executions continued with unrelenting brutality—chainsaws severing heads, blood spraying across the polished floor.
 
 Angela clung to the wall, trembling, until her turn came. She was dragged forward, her eyes locking onto Trump’s unfeeling gaze before she was forced to stand before the executioner.  
 
-As the chainsaw buzzed, Angela began to pray fervently, seeking solace in her final moments. The blade came into contact with her neck, pulling and chewing through the flesh. Her body shook uncontrollably as the chainsaw’s teeth tore through muscles and tendons.  
+As the chainsaw buzzed, Angela began to pray fervently, seeking solace in her final moments. She prayed for herself, for her family, and for the community that had once thrived in her church. Her prayers were desperate, asking God to bring light back to Hickory Valley Christian Church, even as her own life ebbed away. 
+
+The blade came into contact with her neck, pulling and chewing through the flesh. Her body shook uncontrollably as the chainsaw’s teeth tore through muscles and tendons.  
 
 Halfway through, when her spinal cord was severed, an intense sensation of burning pain erupted throughout her body. It felt as though she were engulfed in flames. She remained acutely aware of every moment as the chainsaw cut through the last strands of muscle and skin.  
 
@@ -81,15 +97,3 @@ The metallic tang of blood and spinal fluid mixed with the acrid taste of tissue
 Her consciousness persisted for what felt like an eternity, though only minutes passed. Angela’s mind raced between flashes of her family, her friends, and her past life. She prayed desperately, asking God how long she would have to endure this torment. She even prayed for the executioners, pleading for their redemption.  
 
 Finally, as her awareness faded, Angela felt an overwhelming sense of cold emptiness—a final, chilling reminder of how loveless the day had become.
-
-The executions continued for hours. Chainsaws buzzed relentlessly, their roar punctuated by the muffled cries of mourners. The final chainsaw powered off around midnight, leaving a suffocating silence in its wake.
-
----
-
-## The Cover-Up  
-
-By the next day, the gymnasium was spotless. Operators had dissolved the bodies, ground the bones, and scattered the remains outdoors, ensuring no trace was left. The mourners’ cars were sanitized, repurposed, or discarded without a trace of their owners.
-
-Outside, the funeral procession continued with Secret Service agents driving some of the mourners’ vehicles. The former President's motorcade was given prominent placement. The public saw only a somber ceremony, unaware of the horrors within.
-
-The truth of what transpired at Rev. Dr. Duke Stone's phantom funeral was erased—along with the lives of the mourners. The orchestrators had partially accomplished their goal: the elimination of Rev. Stone's associates to prevent discussion of his out-of-character and unexplained disappearance.
